@@ -1,2 +1,0 @@
-# -
-a little boy only
